@@ -1,2 +1,2 @@
 # abhishekablert.github.io
-It's about my skills, qualification etc. or Simply you can say it's my resume. 
+From here you will know more about my skills, education, qualification etc. Inshort it's my resume.  
